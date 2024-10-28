@@ -96,4 +96,3 @@ Advanced Certificate for Management Professional
 2023
 
 ---
-# CV
